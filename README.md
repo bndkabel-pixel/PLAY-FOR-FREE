@@ -1,2 +1,1 @@
-# PLAY-FOR-FREE
-Game (CHEAT EDITION)
+*Примечание*: в игре есть ***ЧИТЫ***!!!
